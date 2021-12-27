@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Monsuru Babatunde Wahab
-- 👀 looking to advance my carrer 
+- 👀 I I'm looking to advance my carrer 
 - 📫 How to reach me wahabmonsuru17@gmail.com
 
 <!---
